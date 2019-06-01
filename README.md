@@ -1,1 +1,1 @@
-# Punimi-Seminatik
+# Punimi-Seminarik
